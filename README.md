@@ -7,7 +7,7 @@
 - 📫 How to reach me
   ✉️ Email: shubhisinghal028e@gmail.com 
   🔗 LinkedIn: www.linkedin.com/in/shubhisinghal28
-- ⚡ Fun fact:
+- ⚡
   My idea of fun? Reading logs like it's a mystery novel 🔍📖
 
 <!---
